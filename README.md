@@ -1,3 +1,5 @@
 Will Smith
-Chris Rock
+Chris Brown
 Post Malone
+Morgan Freeman
+
